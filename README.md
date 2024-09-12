@@ -1,0 +1,7 @@
+![klaster-logotype-white](https://github.com/user-attachments/assets/21e95e87-0973-4aee-9e0a-a7f42de7df83)
+![klaster-logotype-white](https://github.com/user-attachments/assets/23406314-f980-4ccb-bd61-1389dd438469)
+[klaster-logotype-white.pdf](https://github.com/user-attachments/files/16979178/klaster-logotype-white.pdf)
+![klaster-logotype-black](https://github.com/user-attachments/assets/24240ee1-0e65-41ac-98b0-5fe004c13ef7)
+![klaster-logotype-black](https://github.com/user-attachments/assets/7575f47f-d331-46f4-9e76-19ec98f2b058)
+[klaster-logotype-black.pdf](https://github.com/user-attachments/files/16979177/klaster-logotype-black.pdf)
+![glowing-symbol](https://github.com/user-attachments/assets/2b6c26d7-866c-4dce-84ba-a8c5256aaa1a)
